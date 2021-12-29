@@ -1,1 +1,1 @@
-# rsschool-cv
+https://edwardkallensexualen.github.io/rsschool-cv/
